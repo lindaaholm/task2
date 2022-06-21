@@ -1,1 +1,1 @@
-This is a repo to remember my time at academy
+This is now both a memory of academy and this task.
