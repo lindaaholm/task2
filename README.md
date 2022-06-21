@@ -1,1 +1,1 @@
-This is a repo to remember my time at academy
+Imagine when I look back at this to se what a complete beginner I was.
